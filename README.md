@@ -33,8 +33,10 @@ Customer-level, product-level aur regional data ka use karke actionable insights
 ✔ Data-driven decision making  
 ✔ Analytical thinking  
 
-## 📬 Let's Connect  
-🔗 LinkedIn – [apna-linkedin-url-yahan-daalo]  
-🐱 GitHub – [apna-github-url-yahan-daalo]
+📬 Contact
+🔗 Connect With Me [ SAMADHAN AHIRE ]
+ LINKDIN :- [ https://www.linkedin.com/in/samadhan-ahire-946592364/ ]
+ GITHUB :- [ https://github.com/SAMADHAN909 ]
+Email: [samadhan0325@gmail.com]
 
 Agar aap data visualization ya analytics par kaam karna chahte hain, to mujhse zarur connect karein!
